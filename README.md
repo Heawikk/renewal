@@ -1,5 +1,5 @@
 # Renewal: Перерождение Земли
-![]([https://i.imgur.com/J9oUQI6.png](https://i.imgur.com/l3x4OJi.png))
+![](https://i.imgur.com/l3x4OJi.png)
 
 # 💾 HotuIT Team
 |**Name**|**Role**|
